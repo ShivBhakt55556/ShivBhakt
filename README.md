@@ -1,2 +1,2 @@
 # ShivBhakt
-we are know this site for unbleavible  photos  of nature &amp; technology vlogs also
+we are knows this site for unbleavible  photos  of nature &amp; technology vlogs also.
